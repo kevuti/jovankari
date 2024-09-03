@@ -1,2 +1,6 @@
-This project makes you a faster player.
-It shows you how much you played minecraft (custom client).
+WARNING:
+THIS IS A COLLECTION OF COMPUTER VIRUS'ES!!!!!!
+
+IT WILL DO HARM TO YOUR DEVICE!!
+
+PLEASE DONOT RUN IT ON YOUR ACTUAL MACHINE BUT ON VIRTUAL MACHINES.
